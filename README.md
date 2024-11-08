@@ -5,4 +5,4 @@
 
 ### 聯絡方式
 📧email:tsanray@gmail.com \
-IG:_raytsan_
+IG:@_raytsan_
