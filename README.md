@@ -4,5 +4,5 @@
 🏫系所:統計資訊學系
 
 ### 聯絡方式
-email:tsanray@gmail.com
+📧email:tsanray@gmail.com \
 IG:_raytsan_
